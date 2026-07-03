@@ -1,4 +1,4 @@
-# 
+# VIP pump.fun sniper bot complementos para Mac OS | Seguro pump.fun sniper bot complementos para PC Windows. Con órdenes límite y comercio apalancado — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
